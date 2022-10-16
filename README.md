@@ -1,2 +1,0 @@
-# haiqal-punya
-Bruh
